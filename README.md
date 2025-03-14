@@ -1,1 +1,2 @@
 # news
+# Info langsung budak
